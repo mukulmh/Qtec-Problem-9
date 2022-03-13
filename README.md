@@ -1,1 +1,0 @@
-# Qtec-Problem-9
